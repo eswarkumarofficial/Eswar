@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Eswar Kumar
 - 👀 I’m interested in ETHICAL HACKING
-- 🌱 I’m currently doing my higher studies @DR.MGR UNIVERSITY(Maduravoyal,Chennai,India)
+- 🌱 I’m currently doing my higher studies @DR.MGR UNIVERSITY (Maduravoyal,Chennai,India)
 - 📫 How to reach me - eswarkumarofficial@gmail.com
